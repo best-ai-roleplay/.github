@@ -89,4 +89,6 @@ Janitor AI leads with API integration and community resources, while Moescape AI
 
 In 2026, AI roleplay apps provide robust tools for storytelling, character interaction, and creative scenarios. Highlights include PovChat AI's superior models, Polybuzz AI's visual integration, Janitor AI's flexibility, Moescape AI's multimedia capabilities, and Character AI's expansive library. User insights point to real advantages in response quality, image tools, character variety, and extended replies. Experiment with free versions to discover your ideal match—the field advances rapidly!
 
+[AI Roleplay Reviews](https://bestairoleplay.com/) is a comprehensive website that blogs about everything AI girlfriends, AI boyfriends, and AI companions. Make sure you check it out.
+
 What's your favorite for roleplay?
